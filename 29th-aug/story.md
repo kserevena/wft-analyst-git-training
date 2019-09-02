@@ -6,4 +6,4 @@ That they were hungry
 But they were nice rays and really, they just wanted a hug
 
 
-and then they all died.
+and then they all died nastily.
